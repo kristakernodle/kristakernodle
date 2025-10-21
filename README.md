@@ -1,1 +1,1 @@
-<h1 align="center">Dr. Krista Kernodle PhD</h1>
+<h1 align="center">Krista Kernodle, PhD</h1>
